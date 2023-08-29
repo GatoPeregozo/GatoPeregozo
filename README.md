@@ -1,5 +1,5 @@
 
-![Developer](https://github.com/GatoPeregozo/GatoPeregozo/assets/143511455/db0527ff-5b08-45fc-a2e7-61486c744ede)
+![Developer (1)](https://github.com/GatoPeregozo/GatoPeregozo/assets/143511455/b1ae8618-e88c-4856-b1fc-1001478d0384)
 
 # Hi there 👋, I'm Dmytro
 
